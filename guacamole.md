@@ -6,7 +6,7 @@ Ingredients:
 
 Instructions:
 - cut and mash avocados
-- chop the jalepeno
+- chop the jalepeno finely
 - squeeze lime
-- add salt
-- and mix well
+- add salt to taste
+- mix but allow some chunkiness
